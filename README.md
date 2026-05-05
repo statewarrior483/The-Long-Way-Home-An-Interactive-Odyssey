@@ -1,1 +1,1 @@
-# The-Long-Way-Home-An-Interactive-Odyssey
+# The Long Way Home: An Interactive Odyssey
